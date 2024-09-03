@@ -1,1 +1,0 @@
-#this is out first lesson with yigit hoca.
